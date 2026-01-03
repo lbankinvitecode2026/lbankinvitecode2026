@@ -2,7 +2,7 @@
 
 Use Lbank referral code **3PUKE** to get 45% off trading fees for life, and up to $9000 USDT in welcome bonuses. No KYC is required to get these great rewards.
 
-[Video Tutorial Embed: https://www.youtube.com/embed/R_DWwQ6kpsM]
+[Video Tutorial Embed: https://www.youtube.com/watch?v=R_DWwQ6kpsM]
 
 ## LBank Referral Code
 **45% discount on trading fees and up to $9,000 USDT in Sign Up Bonuses!**
@@ -156,5 +156,6 @@ There's no limit to how many users you can refer. All commissions are paid daily
 
 ## Start Trading Smarter with Lbank
 Maximize your crypto profits using referral code **3PUKE** for permanent fee savings. Whether you're day trading futures or HODLing blue chips, Lbank provides the tools and liquidity for success.
+[https://sites.google.com/view/lbank-referral-code-2026]
 
 Claim your 45% discount today and join millions of traders on one of crypto's most dynamic exchanges.
